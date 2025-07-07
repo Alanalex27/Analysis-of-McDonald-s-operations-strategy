@@ -1,0 +1,1 @@
+# Analysis-of-McDonald-s-operations-strategy
